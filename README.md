@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @zyrya ( or Kira)
+- 👀 I’m interested in programming, photoshop.
+- 🌱 I’m currently learning USFEU
+- 📫 How to reach me:
+- telegram https://t.me/MacoHbl_pyJlRT
+- mail zyrykirill@mail.ru
